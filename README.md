@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning javascript
 - 💞️ I’m looking to collaborate on web development projects
 - 📫 wanna reach me kindly drop your contact number on navit664@gmail.com .I will contact you within 24 hrs.
+- visit my linked in profile
